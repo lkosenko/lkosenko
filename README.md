@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lkosenko
-- 👀 I’m interested in Recruiting
+- 👀 I’m interested in Recruiting and Sourcing
 - 🌱 I’m currently learning how to find cool people to Dev.Pro
 - 📫 How to reach me: 
 Telegram: @yelizaveta_kosenko
